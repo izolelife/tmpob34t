@@ -1,2 +1,11 @@
-# tmpob34t
-Tempobet İle Kazancın Temposunu Yakala 627TL Bonus
+# Tempobet ⚡
+### Tempobet ile yüksek oranlı bahis fırsatlarını kaçırmayın! Canlı bahis, casino oyunları ve daha fazlasıyla dolu platformumuzda, güvenli ve hızlı para yatırma/çekme işlemleriyle kazancınızı artırın. Müşteri memnuniyeti odaklı hizmetimizle, her zaman yanınızdayız. Hemen üye olun, avantajları yakalayın!
+
+# <a href="https://heylink.me/denemebonusu2025/">Giriş İçin Tıklayınız ✅</a>
+
+<a href="https://heylink.me/denemebonusu2025/" title="Güncel Giriş">
+<img src="https://i.ibb.co/YjtLwQ8/cats.jpg" alt="Güncel Giriş" style="max-width: 48%; border: 2px solid #ddd; border-radius: 10px; margin-right: 1%;">
+</a>
+<a href="https://heylink.me/denemebonusu2025/" title="Güncel Giriş">
+<img src="https://i.ibb.co/VHdrjnQ/df.jpg" alt="Güncel Giriş 2" style="max-width: 48%; border: 2px solid #ddd; border-radius: 10px;">
+</a>
